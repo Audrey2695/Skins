@@ -1,13 +1,10 @@
 # Skins
 List of my shitty lil skins
-# [Mess of a skin](https://genericskrub.s-ul.eu/Ok6yZeac)
-![Mess of a skin](https://genericskrub.s-ul.eu/qQw0hHLG)
+# [Mess of a skin](https://thuga.im/u/kUGbIJChnEH5.osk)
+![Mess of a skin](https://thuga.im/u/6qE4G6OXI3x0.jpg)
 
-# [Aristia Edit](https://genericskrub.s-ul.eu/T4iVZX6A)
-![Aristia](https://genericskrub.s-ul.eu/U5aHUYkq)
-
-# [Youmu Konpaku Variant 1](https://genericskrub.s-ul.eu/NGFTiwI3)
-![YoumuVar1](https://genericskrub.s-ul.eu/kE6mISty)
+# [Youmu Konpaku](https://thuga.im/u/JD9yh6K0aFif.osk)
+![YoumuAzr8](https://thuga.im/u/W3r0exsiD7aK.jpg)
 
 # [Audi r9](https://thuga.im/u/5NNeNCMaOKtP.osk)
 ![Audinyoom](https://thuga.im/u/OjuFjKHBzWTt.jpg)
