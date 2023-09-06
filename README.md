@@ -9,5 +9,5 @@ List of my shitty lil skins
 # [Youmu Konpaku Variant 1](https://genericskrub.s-ul.eu/NGFTiwI3)
 ![YoumuVar1](https://genericskrub.s-ul.eu/kE6mISty)
 
-# [Skrub Yugen Edit](https://genericskrub.s-ul.eu/feHkTYVN)
-![Yugenlol](https://genericskrub.s-ul.eu/o6YuS5aH)
+# [Audi r9](https://thuga.im/u/5NNeNCMaOKtP.osk)
+![Audinyoom](https://thuga.im/u/OjuFjKHBzWTt.jpg)
