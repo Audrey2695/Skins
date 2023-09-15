@@ -1,5 +1,5 @@
 # Skins
-List of my shitty lil skins
+List of my shitty lil skins (im sorry for the file names being random like that just rename them or something in ur /Skins/ folder)
 # [Mess of a skin](https://thuga.im/u/kUGbIJChnEH5.osk)
 ![Mess of a skin](https://thuga.im/u/6qE4G6OXI3x0.jpg)
 
