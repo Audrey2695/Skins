@@ -1,6 +1,6 @@
 # Skins
 List of my shitty lil skins
-If its not listed then i have 0 involvement in making/editing/mixing the skin soz
+# If its not listed then i have 0 involvement in making/editing/mixing the skin soz
 # [Moonshine 2.1 Edit](https://thuga.im/u/Moonshine%202.1%20%5BAudrey%20Edit%5D.osk)
 ![Moonshine 2.1](https://thuga.im/u/screenshot1276.jpg)
 # [Mess of a skin](https://thuga.im/u/Audrey's%20Mess.osk)
